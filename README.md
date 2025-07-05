@@ -1,16 +1,25 @@
-## Hi there 👋
+# 🕊一只鸽子的自我介绍 
 
-<!--
-**pikaqiu1254/pikaqiu1254** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+> “咕咕咕咕咕咕”  
+> —— 来自一条上网冲浪的老鸽子
 
-Here are some ideas to get you started:
+## 👦 我是个啥玩意?
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+我是一只鸽子，一只闲的没事到处找乐子的鸽子。
+
+## 🕹️ 去哪找乐子的
+
+- 🎮 **崩坏：星穹铁道（偶尔爆肝，更多时候在摸鱼）**
+- **⛏️ Minecraft（挖挖方块，造造世界）**
+
+## 想揍本鸽子？
+
+📬**q2155149336&#64;163.com**
+🐧**3639238341**(个人资料瞎填的啦)
+## 🕊 咕咕宣言
+
+~~“就算只是条鸽子，也要在自己的鸽子窝里拉坨大的！”~~
+
+**“鸽子不止会咕咕，它还会扑腾自己的翅膀”**
+
+---
